@@ -3,7 +3,7 @@
 ## I'm a Software Engineer!!
 
 - 👁 I’m learning everday!
-- 👯 I’m looking to collaborate with other content creators
+- 👯 I’m looking to collaborate 
 - 🥅 2022 Goals: Develop more projects, Find a software engineer job
 - ⚡ Fun fact: I love fitness, creating a more advanced world
 
