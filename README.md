@@ -4,7 +4,7 @@
 
 - 👁 I’m learning everday!
 - 👯 I’m looking to collaborate 
-- 🥅 2022 Goals: Develop more projects, Find a software engineer job
+- 🥅 2022 Goals: Develop more projects in a team oriented workspace
 - ⚡ Fun fact: I love fitness, creating a more advanced world
 
 ### Connect with me:
