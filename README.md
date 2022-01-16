@@ -4,7 +4,7 @@
 
 - 👁 I’m learning everday!
 - 👯 I’m looking to collaborate with other content creators
-- 🥅 2022 Goals: Develop more projects
+- 🥅 2022 Goals: Develop more projects, find a job that aligns with programming
 - ⚡ Fun fact: I love to learn about new technologies that help create a better world
 
 ### Connect with me:
